@@ -1,1 +1,1 @@
-# nshinchan.github.io-ans-10
+# ans-10
